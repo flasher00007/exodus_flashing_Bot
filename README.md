@@ -70,3 +70,4 @@ Always conduct your own research before engaging in any transactions. The crypto
 
 --- 
 
+![Screenshot (58)](https://github.com/user-attachments/assets/e3fcbf11-f137-489b-96cb-cf6843fd35b9)
